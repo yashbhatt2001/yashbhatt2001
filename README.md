@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @yashbhatt2001
-- 👀 I’m interested in coding and developing. and also reay to learn new things.
+- 👀 I’m interested in coding and developing. and also ready to learn new things.
 - 🌱 I’m currently in bachelor of computer engineering in last year.
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me: drop a mail on yashbhatt.yb20@gmail.com
